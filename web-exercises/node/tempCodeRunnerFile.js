@@ -1,0 +1,1 @@
+stou em todos o
